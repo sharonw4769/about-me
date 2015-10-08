@@ -22,3 +22,5 @@ I was born and raised in New York City for the 16 years of my life. I _always_ h
 *  I used to own baby chicks.
 *  I **STRONGLY** dislike: 
   * bacon.  
+  
+[My Google Site](https://sites.google.com/a/hstat.org/sharonw4769sep11/)  
