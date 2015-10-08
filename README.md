@@ -12,7 +12,7 @@ I was born and raised in New York City for the 16 years of my life. I _always_ h
 5. AP Calculus
 6. Spanish
 7. Lunch
-8. Yoga
+8. Yoga  
 ## Fun Facts  
 * I could only jump rope backwards.
 * I started editing my own videos when I was in elementary school.  
