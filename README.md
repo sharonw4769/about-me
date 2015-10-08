@@ -13,3 +13,9 @@ I was born and raised in New York City for the 16 years of my life. I _always_ h
 6. Spanish
 7. Lunch
 8. Yoga
+## Fun Facts  
+* I could only jump rope backwards.
+* I started editing my own videos when I was in elementary school.  
+* When I was in 6th or 7th grade, I decided to cut off a "few" strands of hair which ended up becoming a bald spot and I never told my mom until recently. 
+* I used to own baby chicks.
+* I **STRONGLY** dislike bacon.  
